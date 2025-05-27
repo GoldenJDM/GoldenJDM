@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GoldenJDM or @BadBoy_America
 - 👀 I’m interested in gun, JDM cars , fghiter airplane
 - 🌱 I’m currently learning my lessons😂
-  you can text me in https://t.me/GoldenJDM
+- you can text me in https://t.me/GoldenJDM
 
 
 
