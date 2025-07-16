@@ -2,7 +2,7 @@
 - 👀 I’m interested in gun, JDM cars , fghiter airplane
 - 🌱 I’m currently learning my lessons😂
 - you can text me in https://t.me/GoldenJDM
-- and https://t.me/BadBoy_America
+- and if you report text here https://t.me/GoldenJDMBOT
  - Or in any other App with the usernames @GoldenJDM and @BadBoy_America .
 
 
