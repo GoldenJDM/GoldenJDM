@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @GoldenJDM or @BadBoy_America
-- 👀 I’m interested in gun, JDM cars , fghiter airplane
-- 🌱 I’m currently learning my lessons😂
-- you can text me in https://t.me/GoldenJDM
-- and if you report text here https://t.me/GoldenJDMBOT
- - Or in any other App with the usernames @GoldenJDM and @BadBoy_America .
-
+- 👋 Hi, I’m @GoldenJDM (also known as @BadBoy_America)
+- 🔧 I’m interested in guns, JDM cars, and fighter aircraft.
+- 📘 Currently learning and expanding my knowledge every day.
+- 📬 You can contact me on Telegram: [@GoldenJDM](https://t.me/GoldenJDM)
+- 🛡️ To report something or reach out via bot: [@GoldenJDMBOT](https://t.me/GoldenJDMBOT)
+- 📱 Available on most platforms with the usernames **@GoldenJDM** and **@BadBoy_America**
+- 📚 My Wikipedia userpage: [User:GoldenJDM](https://fa.wikipedia.org/wiki/کاربر:GoldenJDM)
 
 <!---
 GoldenJDM/GoldenJDM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
